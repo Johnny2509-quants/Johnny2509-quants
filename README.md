@@ -64,7 +64,7 @@ I'm an aspiring **Financial Analyst** and **Customer Support Professional** with
 
 ### 📫 Get in Touch
 
-- 📧 Email: tranthanhhien05082013@gmail.com
+- 📧 Email: thanhhiendata2509@gmail.com
 - 💼 LinkedIn: https://www.linkedin.com/in/thanh-hien-tran-92103b130/
 
 ---
